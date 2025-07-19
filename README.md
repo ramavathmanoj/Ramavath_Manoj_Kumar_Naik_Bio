@@ -27,5 +27,5 @@ Aspiring Data Scientist | Master's in Data Science & Business Analysis | Ex-Cogn
 
 🚀 I’m actively looking for internship or alternance roles across Europe.
 
-📫 Reach out via [LinkedIn](www.linkedin.com/in/ramavath-manoj-kumar-naik-64a6a1189) or GitHub!
+📫 Reach out via (www.linkedin.com/in/ramavath-manoj-kumar-naik-64a6a1189)!
 
